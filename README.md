@@ -1,3 +1,3 @@
-                 :𓈒¹ Liam ﹒　　 ﹢﹒ᶻ﹒                 11.22.08 ⌓⌓.  single 𓈒 ꕀ﹒
+                 :𓈒¹ Liam ﹒　　 ﹢﹒ᶻ﹒                 11.22.08 ⌓⌓.  TAKEN 𓈒 ꕀ﹒
            　
-             𓏵 × <spooks3 !  𓏼 𝜗𓏲   
+             𓏵 × <damie & clums3 !  𓏼 𝜗𓏲   
